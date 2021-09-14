@@ -1,0 +1,1 @@
+# 10-sinif-cografya-planli-ders-foyu-32
